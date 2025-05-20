@@ -33,4 +33,23 @@
 
 ![](https://github.com/ceyhxun/cyber_lab5/blob/main/12.jpeg)
 
-![](https://github.com/ceyhxun/cyber_lab5/blob/main/1.jpeg)
+
+![](https://github.com/ceyhxun/cyber_lab5/blob/main/13.jpeg)
+
+
+![](https://github.com/ceyhxun/cyber_lab5/blob/main/14.jpeg)
+
+
+![](https://github.com/ceyhxun/cyber_lab5/blob/main/15.jpeg)
+
+
+![](https://github.com/ceyhxun/cyber_lab5/blob/main/16.jpeg)
+
+
+![](https://github.com/ceyhxun/cyber_lab5/blob/main/17.jpeg)
+
+
+![](https://github.com/ceyhxun/cyber_lab5/blob/main/18.jpeg)
+
+
+
